@@ -3,4 +3,4 @@ ______
 
 
 # ######
-Info bout Stamps... BOOBS! ddddf
+Simon is a good man who loves grilled cheese sammiches and stamps ;)
