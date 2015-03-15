@@ -3,7 +3,7 @@ Simon's Stamp Collection
 
 # About Simon's Stamps
 
-Simon is a good man who loves grilled cheese sammiches and stamps ;)
+Simon is a good man who loves grilled goat sammiches and stamps ;)
 
 Info bout Stamps... BOOBS! 
 
